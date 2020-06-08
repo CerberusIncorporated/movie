@@ -9,7 +9,7 @@
 чтобы спасти их для потомков. 
 Название книги объясняется в эпиграфе: «451 градус по Фаренгейту — температура, при которой воспламеняется и горит бумага».
 
-![farenheit](https://opt.detskoelukoshko.ru/wa-data/public/shop/products/88/57/25788/images/13456/13456.750x0.jpg)
+![farenheit](https://mmedia.ozone.ru/multimedia/1012148763.jpg)
 
 <h2> Старик и море </h2> 
 <h4> Эрнест Хемингуэй </h4>
