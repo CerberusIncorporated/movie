@@ -300,7 +300,7 @@
 
 «Я есть Грут» — американский мультсериал, созданный для стримингового сервиса Disney+, основанный на одноимённом персонаже Marvel Comics. В нём представлены персонажи из медиафраншизы «Кинематографическая вселенная Marvel». Производством занимается компания Marvel Studios.
 
-![iamgroot](https://cutewallpaper.org/21/groot-image/The-untold-truth-of-Baby-Groot.jpg])
+![iamgroot](https://cutewallpaper.org/21/groot-image/The-untold-truth-of-Baby-Groot.jpg)
 
 <h2> Адский босс </h2>
 
